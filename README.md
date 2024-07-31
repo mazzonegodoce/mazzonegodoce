@@ -5,6 +5,8 @@ meu nome e mazzo totoso ( ͡❛ ͜ʖ ͡❛)✌
 - estou estudando na rubens de oliveira camargo e so tiro notas boa
 - mesmo que nao parece eu tenho 18cm kkkkk ╭ᑎ╮
 - eu gosto de shibiu nao de bilola haaaa
+- eu sou sigma da baia e gosto da sopia espanha nao asisto PAM PAM sou 22 e nao procuro o olny fans da catarina paolina
+
 
 - ### se vc quiser enche meu saco entrar em contato comigo⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣠⣤⣤⣤⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣀⣀⠀⠀⠀⢀⣴⠟⠉⠀⠀⠀⠈⠻⣦⡀⠀⠀⠀⣤⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
